@@ -10,3 +10,6 @@
 - 📫 How to reach me: Lucasncastillo96@gmail.com  
 
 
+#####La recompensa del trabajo no es lo que obtienes,sino en lo que te conviertes
+
+
